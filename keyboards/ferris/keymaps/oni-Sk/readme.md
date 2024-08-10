@@ -17,3 +17,8 @@ auie, ctsrn
 ••••• •◀▼▲▶
 ••••• •••••
    •• ⌫⌦
+
+bmpo⇥ zvdlj
+auie, ctsrn
+:y⎋↩k wqghf
+   .x x␣
